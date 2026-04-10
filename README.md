@@ -1,0 +1,2 @@
+# kaznpu
+nauka
